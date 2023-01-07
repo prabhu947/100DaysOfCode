@@ -16,3 +16,4 @@ I will utilise my time very efficiently.
 
 I will do typing test for 30 minutes to improve my typing speed.
 
+I will do Development project as well.
